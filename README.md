@@ -20,6 +20,15 @@ Here are some ideas to get you started:
 
 지금은 초라하지만 1년 뒤는 다릅니다
 
+
+
+
+
+
+
+
+
+
 23.09.07 status
 ![image](https://github.com/fanta4715/fanta4715/assets/112597963/ff9af570-96e7-4d68-9e4b-11461a55715d)
 
